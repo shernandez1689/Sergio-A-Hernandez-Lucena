@@ -1,4 +1,4 @@
-# Sergio-Hernandez
+# Sergio Alejandro Hernandez Lucena
 
 AI engineer  | Mechanical engineer | Agile Automotive Systems Manager | Scrum Master | Error Resolution Specialist
 
